@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Trigonaut
+- 👀 I’m interested in ... coding
+- 🌱 I’m currently learning ... better coding
+- 💞️ I’m looking to collaborate on ... coding sometimes
+- 📫 How to reach me ... you can't
